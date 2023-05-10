@@ -1,0 +1,2 @@
+# dalam-
+KOENEC SUKA
